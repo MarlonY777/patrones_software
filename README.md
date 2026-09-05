@@ -15,4 +15,4 @@ Institución Universitaria Tecnológica de Santander
 
 Facultad de Ciencias Naturales e Ingenierías
 
-Bucaramanga, agosto 2026
+Bucaramanga, septiembre 2026
